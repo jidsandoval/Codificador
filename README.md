@@ -1,1 +1,0 @@
-# jidsandoval.githhub.io
